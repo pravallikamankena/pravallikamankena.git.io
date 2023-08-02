@@ -1,1 +1,0 @@
-# pravallikamankena.io
